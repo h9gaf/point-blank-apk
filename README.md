@@ -3,7 +3,7 @@
 ## Apa Itu Point Blank APK?
 Point Blank APK menghadirkan aksi klasik *Point Blank* dalam versi mobile. Dikembangkan oleh Nexon Company, adaptasi mobile ini menggabungkan *tactical combat* dengan pertempuran *real-time PvP* yang cepat. Dirancang untuk penggemar FPS muda dan berpengalaman, *Point Blank mobile game* menawarkan pertandingan intens 4v4 dengan kontrol sederhana, memungkinkan pemain untuk terjun ke pertarungan seru dalam peta ikonik.
 
->Unduh Disini: https://modhello.com
+>Unduh Disini: https://modhello.com/point-blank/
 
 *Point Blank APK latest version* menghadirkan berbagai mode permainan, loadout yang dapat disesuaikan, dan kontrol yang mudah digunakan, menjadikannya pilihan sempurna untuk gamer yang mencari *Android action games* yang kompetitif. Baik Anda pemula di dunia FPS atau pemain berpengalaman, *multiplayer shooting game* ini akan memikat perhatian dengan aksi cepat dan gameplay yang mulus.
 
